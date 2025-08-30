@@ -1,1 +1,2 @@
-prubas de como usar github
+solo un aprendiz en esta area del saber
+alabado sea el Omnissiah
